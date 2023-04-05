@@ -5,3 +5,5 @@ I know that nobody love me
 even I love them, I still think that they will never accept my love
 I just got rejected and rejected
 I will be unloveable man in my entire live
+
+I wish for once, I wish that I could be loved by a girl I love
